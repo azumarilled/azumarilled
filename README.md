@@ -1,5 +1,5 @@
 <div align="center">
-  <p><a href="https://hits.sh/github.com/azumarilled/"><img alt="Hits" src="https://hits.sh/github.com/azumarilled.svg?style=flat-square&label=nyan!%20nyan!&color=a420b0&labelColor=4287f5"/></a>⁀➴<a href="https://hits.sh/github.com/heartiel/"><img alt="Hits" src="https://hits.sh/github.com/heartiel.svg?style=flat-square&label=meow&color=fc56a1&labelColor=ffc782"/></a></p>
+  <p><a href="https://hits.sh/github.com/azumarilled/"><img alt="Hits" src="https://hits.sh/github.com/azumarilled.svg?style=flat-square&label=nyan!%20nyan!&extraCount=2300&color=a420b0&labelColor=4287f5"/></a>⁀➴<a href="https://hits.sh/github.com/heartiel/"><img alt="Hits" src="https://hits.sh/github.com/heartiel.svg?style=flat-square&label=meow&extraCount=1000&color=fc56a1&labelColor=ffc782"/></a></p>
 
 ###
   
