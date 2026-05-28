@@ -8,7 +8,7 @@
 
 ###
 
-<p align="center">⸝⸝⸝ㅤ ${\textsf{\color{#fc56a1}luu}}$ <ins>or</ins> ${\textsf{\color{#7bf05b}luuvie}}$ ㅤ<img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_214611534237175.gif" width="10"> ㅤ ${\textsf{\color{#4287f5}he}}$ / ${\textsf{\color{#7bf05b}it}}$ / ${\textsf{\color{#4287f5}any}}$ㅤ<img src="https://file.garden/aYA2Fw4_plkXr3Eh/636c60f3.gif" width="16"><br><img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_248343055950724.jpg" width="15">ㅤ esp ${\textsf{\color{#ffc782}╱}}$ eng ㅤ★ㅤ  ${\textsf{\color{#a420b0}isfp}}$ ㅤ(˶˃ᆺ˂˶)</p>
+<p align="center">⸝⸝⸝ㅤ ${\textsf{\color{#fc56a1}luu}}$ ou ${\textsf{\color{#7bf05b}luuvie}}$ ㅤ<img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_214611534237175.gif" width="10"> ㅤ ${\textsf{\color{#4287f5}he}}$ / ${\textsf{\color{#7bf05b}it}}$ / ${\textsf{\color{#4287f5}any}}$ㅤ<img src="https://file.garden/aYA2Fw4_plkXr3Eh/636c60f3.gif" width="16"><br><img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_248343055950724.jpg" width="15">ㅤ esp ${\textsf{\color{#ffc782}╱}}$ eng ㅤ★ㅤ  ${\textsf{\color{#a420b0}isfp}}$ ㅤ(˶˃ᆺ˂˶)</p>
 
 ###
 
