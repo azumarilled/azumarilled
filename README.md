@@ -18,7 +18,7 @@
 
 ###
 
- <p align="center"><img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_214591215182943.gif" width="15">ㅤ<strong>selec.</strong> sharing ${\textsf{\color{#fc56a1}infected}}$ / ${\textsf{\color{#ffc782}pest}}$ riakoㅤ <img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_248082678825478.gif" width="15"><br>੭ㅤcudscomfㅤ ${\textsf{\color{#4287f5}𓏏𓏏}}$ ㅤsemi verbal <img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_247931509944008.gif" width="15"></p>
+ <p align="center"><img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_214591215182943.gif" width="15">ㅤskins <ins>always</ins> ${\textsf{\color{#7bf05b}free to inspo}}$ ㅤ<img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_248082678825478.gif" width="15"><br>੭ㅤcudscomfㅤ ${\textsf{\color{#fc56a1}𓏏𓏏}}$ ㅤsemi verbal <img src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_247931509944008.gif" width="15"></p>
 
 ###
 
