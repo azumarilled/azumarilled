@@ -22,7 +22,7 @@
 
 ###
 
-<h6 align="center"><a href="https://apocalypshit.carrd.co/">crrd</a>ㅤ<a href="https://discord.com/users/1016574905959059528">disc</a>ㅤ<a href="https://tumblr.com/angelfected">tumblr</a>ㅤ<a href="https://open.spotify.com/user/316zlu2pjfkopg4onyuyhltj6kse?si=2izantrTTzeLw78-RWOzww">spotify</a></h6>
+<h6 align="center"><a href="https://wanwandafuru.carrd.co/">crrd</a>ㅤ<a href="https://discord.com/users/1016574905959059528">disc</a>ㅤ<a href="https://tumblr.com/angelfected">tumblr</a>ㅤ<a href="https://open.spotify.com/user/316zlu2pjfkopg4onyuyhltj6kse?si=2izantrTTzeLw78-RWOzww">spotify</a></h6>
 
 ###
 
