@@ -1,8 +1,4 @@
-<div align="center">
-  <a href="https://hits.sh/github.com/azumarilled/"><img alt="Hits" src="https://hits.sh/github.com/azumarilled.svg?style=flat-square&label=nyan!%20nyan!&extraCount=2300&color=a420b0&labelColor=4287f5"/></a>
 
-###
-  
   <img height="500" src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_211975152338172.gif"  />
 </div>
 
