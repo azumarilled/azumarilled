@@ -1,6 +1,5 @@
 
-  <img height="500" src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_211975152338172.gif"  />
-</div>
+  <p align="center"><img height="500" src="https://file.garden/aYA2Fw4_plkXr3Eh/Tumblr_l_211975152338172.gif" align="center"/></p>
 
 ###
 
